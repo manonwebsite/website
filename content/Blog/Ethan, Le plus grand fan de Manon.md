@@ -3,7 +3,7 @@ Ethan avec la veste de Manon. Il est trop mignon ce petit.
 ![[manon1.png|341]]
 
 ---
-Ethan fait crash, propose ce débile. Sérieux, fallait lui dire que c'était débile.
+Ethan fait crash pronote ce débile. Sérieux, fallait lui dire que c'était débile.
 ![[manon7.png|343]]
 
 ---
