@@ -1,6 +1,6 @@
 ---
 title: About Me
 ---
-I'm Deidaracomplex.
+I'm REDACTED.
 
-- 17/09/2026 - [[Ethan, Le plus grand fan de Manon]] : À supprimer au plus vite.
+- 17/09/2026 - [[REDACTED Le plus grand fan de REDACTED]] 
